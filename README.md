@@ -1,2 +1,0 @@
-# karishinds.github.io
-Portfolio
